@@ -1,16 +1,90 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**N89wm/N89wm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
+<img width="336" height="236" alt="1000020474" src="https://github.com/user-attachments/assets/b6f545d4-97b3-4409-8226-dfa88956ddfd" />
 
-Here are some ideas to get you started:
+## 𐙚Hello, I'm N89wm, or you could call me Yuii as well! My friends tend to call me by my old username /aka Yuii ᥬᩤ(⁠≧⁠▽⁠≦⁠)
+---
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+------ ≽^•⩊•^≼ ------
+
+
+♡⃝Meo.
+⸽ I like black, white n blue.𐔌՞. .՞𐦯
+
+⸽ **─I'm a young artist!(That's all you need to know)! My current fandom/s is UU SMP andd Animal Hospital too! i think?➤ 👀**
+
+˙✧˖°📷 ༘ ⋆｡˚
+# Fd I used to be in:˚˖𓍢ִ໋❀
+
+- JJk𝄢
+- Fsk𝄢
+- Blue Lock(Uh.👀)𝄢
+- UnderTale𝄢
+- Dandy World⋆
+- DoD⋆⋆
+- Genshin Impact⋆
+- Honkai Star Rail⋆
+- heavens official blessing𝄽
+- The Scum Villain's Self-Saving System𝄽
+- The Grandmaster of Demonic Cultivation𝄽
+- Dao of the Bizarre Immortal𝄽
+- BlockTales𝄽
+- MHA❧
+- Etc.
+
+
+<img width="367" height="129" alt="1000020475" src="https://github.com/user-attachments/assets/587a52da-15ee-48d0-b2a7-ce0ebf9be444" />
+
+----- ₍⸍⸌̣ʷ̣̫⸍̣⸌₎-----
+
+ ---
+
+⸽ ✦ No, don't ask me about your fav char's quotes; I'll forget about it immediately (⁠╯⁠︵⁠╰⁠,⁠)..✦ ݁˖
+<img width="367" height="160" alt="1000020451" src="https://github.com/user-attachments/assets/985f6166-edd4-4e56-a868-9e1dc926e64f" />
+
+Oh uh, who's playing **the** music?
+
+`Laufey - Too Little, Too Late▶ •၊၊||၊|။||||။၊|• 3:54`
+𝄞⨾💿✮˚.⋆
+ ---
+
+(∩｀-´)⊃━━☆ﾟ.*･｡ﾟ------------
+
+⸽ " My favourites in UU ??w⁠(⁠°⁠ｏ⁠°⁠)⁠w"
+
+⸽ It's Wifies, Parrotx2, Spok and Booster! >^-^<
+
+⸽ *Cheer* ≧◡≦
+
+⸽ `` "Are you a larper? (⁠⊙⁠_⁠◎⁠)"
+
+# ⋆˚꩜｡OH UHHH..About that (◞ ‸ ◟ㆀ)..👀
+
+<img width="204" height="252" alt="1000020447" src="https://github.com/user-attachments/assets/2a13d412-3384-4a84-9e90-4baff4be1e51" />
+
+
+⸽ ꙳𓍢ִ໋🌷͙֒Anyways! English IS not my first language; I'm born from Vietnam btw *Kiss* 🫶❤️❤️ྀི
+ᥫ᭡.🍥⋆🐇་༘.ೃ࿔
+# Im new at this,,,જ⁀➴
+## ↓
+# **❌ Boundary breaker DNI‼️‼️**
+ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ.(º﹃º)
+---
+
+☾ Wifies: Please, Parrot. Please. Give that to me before you hurt yourself.಄
+
+✸ Parrot: When people ask me about who Wifies was, I'm gonna remember you as the Wifies that I used to know.ִֶָ🪽་༘
+
+✸ Parrot: it's all yours **//parrot drop the spyglass//** ִֶָ🪽་༘
+
+<img width="736" height="164" alt="1000020463" src="https://github.com/user-attachments/assets/e2a7f2be-9ba3-4a78-8f46-e7ca9dffc841" />
+
+
+![Status](https://img.shields.io/badge/Status-Online-green)
+
+Ｉ ∟ＯⅤ∈ Υ〇∪…..φ(｡･ω･｡ )
+🪼⋆｡𖦹°🫧⋆.ೃ࿔*:･
+<img width="236" height="136" alt="1000020476" src="https://github.com/user-attachments/assets/84ddd7cd-db5a-4764-bf58-88670ca629d0" />
+⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
+</div>
