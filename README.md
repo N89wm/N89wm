@@ -66,7 +66,7 @@ Oh uh, who's playing **the** music?
 
 ⸽ ꙳𓍢ִ໋🌷͙֒Anyways! English IS not my first language; I'm born from Vietnam btw *Kiss* 🫶❤️❤️ྀི
 ᥫ᭡.🍥⋆🐇་༘.ೃ࿔
-# Im new at this,,,જ⁀➴
+# 「 ☆」Im new at this,,,જ⁀➴
 ## ↓
 # **❌ Boundary breaker DNI‼️‼️**
 ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ.(º﹃º)
