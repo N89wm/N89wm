@@ -3,13 +3,19 @@
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 <img width="336" height="236" alt="1000020474" src="https://github.com/user-attachments/assets/b6f545d4-97b3-4409-8226-dfa88956ddfd" />
 
-## 𐙚Hello, I'm N89wm, or you could call me Yuii as well! My friends tend to call me by my old username /aka Yuii ᥬᩤ(⁠≧⁠▽⁠≦⁠)
+<img src="https://readme-typing-svg.demolab.com?font=Arial&size=24&pause=1000&color=9B59B6&center=true&vCenter=true&width=500&lines=Hello!;Welcome+to+my+GitHub!">
+
+
+## 𐙚I'm N89wm, or you could call me Yuii as well! My friends tend to call me by my old username /aka Yuii ᥬᩤ(⁠≧⁠▽⁠≦⁠)
 ---
 
 ------ ≽^•⩊•^≼ ------
 
+⸽ # [![TikTok](https://img.shields.io/badge/TikTok-black?logo=tiktok&logoColor=white)](https://www.tiktok.com/@n89wm)
 
-♡⃝Meo.
+(https://www.tiktok.com/@n89wm)
+
+♡⃝Hi again.
 ⸽ I like black, white n blue.𐔌՞. .՞𐦯
 
 ⸽ **─I'm a young artist!(That's all you need to know)! My current fandom/s is UU SMP andd Animal Hospital too! i think?➤ 👀**
@@ -22,7 +28,7 @@
 - Blue Lock(Uh.👀)𝄢
 - UnderTale𝄢
 - Dandy World⋆
-- DoD⋆⋆
+- DoD⋆
 - Genshin Impact⋆
 - Honkai Star Rail⋆
 - heavens official blessing𝄽
@@ -31,7 +37,7 @@
 - Dao of the Bizarre Immortal𝄽
 - BlockTales𝄽
 - MHA❧
-- Etc.
+- KNY.
 
 
 <img width="367" height="129" alt="1000020475" src="https://github.com/user-attachments/assets/587a52da-15ee-48d0-b2a7-ce0ebf9be444" />
@@ -80,11 +86,13 @@ Oh uh, who's playing **the** music?
 
 <img width="736" height="164" alt="1000020463" src="https://github.com/user-attachments/assets/e2a7f2be-9ba3-4a78-8f46-e7ca9dffc841" />
 
-
-![Status](https://img.shields.io/badge/Status-Offline-red)
-
 Ｉ ∟ＯⅤ∈ Υ〇∪…..φ(｡･ω･｡ )
 🪼⋆｡𖦹°🫧⋆.ೃ࿔*:･
-<img width="236" height="136" alt="1000020476" src="https://github.com/user-attachments/assets/84ddd7cd-db5a-4764-bf58-88670ca629d0" />
+<p align="center">
+
+![Stay Cute](https://img.shields.io/badge/Stay%20Cute-FF69B4?style=for-the-badge)
+
+</p>
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
+
 </div>
