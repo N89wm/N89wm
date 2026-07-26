@@ -81,7 +81,7 @@ Oh uh, who's playing **the** music?
 <img width="736" height="164" alt="1000020463" src="https://github.com/user-attachments/assets/e2a7f2be-9ba3-4a78-8f46-e7ca9dffc841" />
 
 
-![Status](https://img.shields.io/badge/Status-Online-green)
+![Status](https://img.shields.io/badge/Status-Offline-red)
 
 Ｉ ∟ＯⅤ∈ Υ〇∪…..φ(｡･ω･｡ )
 🪼⋆｡𖦹°🫧⋆.ೃ࿔*:･
