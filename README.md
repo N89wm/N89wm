@@ -95,4 +95,8 @@ Oh uh, who's playing **the** music?
 </p>
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 
+⸽ If You're my friend AND a Boundaries Breaker, don't mention your ships or stuff before me ok? ok. I don't support them but I doesn't want to ruin any connection I MIGHT have.(⁠ ⁠≧⁠Д⁠≦⁠)
+
+## ⸽ Love all of my friends, take care of yourself and sleep well every day. You can vent to me, though I'm only good at listening, not answering or comforting. (If I sound dry, don't feel sad; just know that I'm very worried about you behind the screen.)♡⁠˖⁠꒰⁠ᵕ⁠༚⁠ᵕ⁠⑅⁠꒱
+🫶❤️
 </div>
