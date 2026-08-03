@@ -63,9 +63,9 @@ Oh uh, who's playing **the** music?
 
 ⸽ *Cheer* ≧◡≦
 
-⸽ `` "Are you a larper? (⁠⊙⁠_⁠◎⁠)"
+⸽ `` "Larper!!!!? (⁠⊙⁠_⁠◎⁠)"
 
-# ⋆˚꩜｡OH UHHH..About that (◞ ‸ ◟ㆀ)..👀
+# ⋆˚꩜｡ ?????? (◞ ‸ ◟ㆀ)..👀
 
 <img width="204" height="252" alt="1000020447" src="https://github.com/user-attachments/assets/2a13d412-3384-4a84-9e90-4baff4be1e51" />
 
@@ -74,7 +74,7 @@ Oh uh, who's playing **the** music?
 ᥫ᭡.🍥⋆🐇་༘.ೃ࿔
 # 「 ☆」Im new at this,,,જ⁀➴
 ## ↓
-# **❌ Boundary breaker DNI‼️‼️**
+# **❌ Boundary breakers DNI‼️‼️**
 ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ.(º﹃º)
 ---
 
@@ -95,7 +95,7 @@ Oh uh, who's playing **the** music?
 </p>
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 
-⸽ If You're my friend AND a Boundaries Breaker, don't mention your ships or stuff before me ok? ok. I don't support them but I doesn't want to ruin any connection I MIGHT have.
+⸽ If you're my friend AND a Boundary Breaker, don't mention your ships or stuff before me ok? ok. I don't support them but I doesn't want to ruin any connection I MIGHT have.
 
 ## ⸽ Love all of my friends, take care of yourself and sleep well every day. You can vent to me, though I'm only good at listening, not answering or comforting. (If I sound dry, don't feel sad; just know that I'm very worried about you behind the screen.)♡⁠˖⁠꒰⁠ᵕ⁠༚⁠ᵕ⁠⑅⁠꒱
 🫶❤️
