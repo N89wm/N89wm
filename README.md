@@ -6,7 +6,7 @@
 <img src="https://readme-typing-svg.demolab.com?font=Arial&size=24&pause=1000&color=9B59B6&center=true&vCenter=true&width=500&lines=Hello!;Welcome+to+my+GitHub!">
 
 
-## 𐙚I'm N89wm, or you could call me Yuii as well! My friends tend to call me by my old username /aka Yuii ᥬᩤ(⁠≧⁠▽⁠≦⁠)
+## 𐙚I'm N89wm, or you could call me Yuiiz7n4 as well! My friends tend to call me by my old username /aka Yuii ᥬᩤ(⁠≧⁠▽⁠≦⁠)
 ---
 
 ------ ≽^•⩊•^≼ ------
