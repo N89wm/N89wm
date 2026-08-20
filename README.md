@@ -1,14 +1,16 @@
 <div align="center">
 
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
-<img width="336" height="236" alt="1000020474" src="https://github.com/user-attachments/assets/b6f545d4-97b3-4409-8226-dfa88956ddfd" />
+<img width="736" height="314" alt="1000021603" src="https://github.com/user-attachments/assets/ec5bc660-222f-47ed-bd36-533a0ad2e7d0" />
 
-<img src="https://readme-typing-svg.demolab.com?font=Arial&size=24&pause=1000&color=9B59B6&center=true&vCenter=true&width=500&lines=Hello!;Welcome+to+my+GitHub!">
+
+<img src="https://readme-typing-svg.demolab.com?font=Arial&size=36&pause=50&color=9FD8FF&center=true&vCenter=true&width=500&lines=HiHiHi!;Welcome+to+my+GitHub!">
 
 
 ## 𐙚I'm N89wm, or you could call me Yuiiz7n4 as well! My friends tend to call me by my old username /aka Yuii ᥬᩤ(⁠≧⁠▽⁠≦⁠)
 ---
 
+<img width="730" height="107" alt="1000021604" src="https://github.com/user-attachments/assets/dd2c4b22-0578-49e0-9c50-e34852c3290b" />
 ------ ≽^•⩊•^≼ ------
 
 ⸽ # [![TikTok](https://img.shields.io/badge/TikTok-black?logo=tiktok&logoColor=white)](https://www.tiktok.com/@n89wm)
@@ -40,18 +42,20 @@
 - KNY.
 
 
-<img width="367" height="129" alt="1000020475" src="https://github.com/user-attachments/assets/587a52da-15ee-48d0-b2a7-ce0ebf9be444" />
+<img width="267" height="129" alt="1000021566" src="https://github.com/user-attachments/assets/e0de8db9-6e59-4624-a02f-fe9efdfe540f" />
+
 
 ----- ₍⸍⸌̣ʷ̣̫⸍̣⸌₎-----
 
  ---
 
 ⸽ ✦ No, don't ask me about your fav char's quotes; I'll forget about it immediately (⁠╯⁠︵⁠╰⁠,⁠)..✦ ݁˖
-<img width="367" height="160" alt="1000020451" src="https://github.com/user-attachments/assets/985f6166-edd4-4e56-a868-9e1dc926e64f" />
+But *then.. Believe in me.*
+<img width="336" height="136" alt="1000021601" src="https://github.com/user-attachments/assets/f6ad37fa-71d9-4d05-beb6-bc3cb9507277" />
+<img src="https://readme-typing-svg.demolab.com?font=Arial&size=36&pause=1000&color=16ACEB&center=true&vCenter=true&width=500&lines=Why+Is+The+Sea+Glowing?">
 
-Oh uh, who's playing **the** music?
 
-`Laufey - Too Little, Too Late▶ •၊၊||၊|။||||။၊|• 3:54`
+
 𝄞⨾💿✮˚.⋆
  ---
 
@@ -67,16 +71,19 @@ Oh uh, who's playing **the** music?
 
 # ⋆˚꩜｡ ?????? (◞ ‸ ◟ㆀ)..👀
 
-<img width="204" height="252" alt="1000020447" src="https://github.com/user-attachments/assets/2a13d412-3384-4a84-9e90-4baff4be1e51" />
+<img width="736" height="490" alt="1000021565" src="https://github.com/user-attachments/assets/729ede84-23a5-49d3-9d3e-f861cbc64b64" />
 
 
-⸽ ꙳𓍢ִ໋🌷͙֒Anyways! English IS not my first language; I'm born from Vietnam btw *Kiss* 🫶❤️❤️ྀི
-ᥫ᭡.🍥⋆🐇་༘.ೃ࿔
-# 「 ☆」Im new at this,,,જ⁀➴
+
+⸽ ꙳𓍢ִ໋֒Anyways! English IS not my first language; I'm Vietnamese !!!! 🩵 ᱸ⁎⁺᧔♡᧓ 
+ᥫ᭡.⋆་༘.ೃ࿔
+# 「 ☆」Im new at this, જ⁀➴
 ## ↓
-# **❌ Boundary breakers DNI‼️‼️**
+# **X Boundary breakers DNI ! ! !**
 ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ.(º﹃º)
 ---
+
+<img width="736" height="164" alt="1000021608" src="https://github.com/user-attachments/assets/9c77fb90-8e0c-4bf8-b3e9-c7988b449a07" />
 
 ☾ Wifies: Please, Parrot. Please. Give that to me before you hurt yourself.಄
 
@@ -84,19 +91,25 @@ Oh uh, who's playing **the** music?
 
 ✸ Parrot: it's all yours **//parrot drop the spyglass//** ִֶָ🪽་༘
 
-<img width="736" height="164" alt="1000020463" src="https://github.com/user-attachments/assets/e2a7f2be-9ba3-4a78-8f46-e7ca9dffc841" />
-
 Ｉ ∟ＯⅤ∈ Υ〇∪…..φ(｡･ω･｡ )
 🪼⋆｡𖦹°🫧⋆.ೃ࿔*:･
 <p align="center">
 
-![Stay Cute](https://img.shields.io/badge/Stay%20Cute-FF69B4?style=for-the-badge)
+![Stay Cute](https://img.shields.io/badge/Stay%20Cute-3494DE?style=for-the-badge)
 
 </p>
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 
-⸽ If you're my friend AND a Boundary Breaker, don't mention your ships or stuff before me ok? ok. I don't support them but I doesn't want to ruin any connection I MIGHT have.
+⸽ I luv decorating my bio till I look like a peacock (⁠◕⁠ᴗ⁠◕⁠✿⁠).
 
-## ⸽ Love all of my friends, take care of yourself and sleep well every day. You can vent to me, though I'm only good at listening, not answering or comforting. (If I sound dry, don't feel sad; just know that I'm very worried about you behind the screen.)♡⁠˖⁠꒰⁠ᵕ⁠༚⁠ᵕ⁠⑅⁠꒱
-🫶❤️
+## ⸽ Love all of my friends, take care of yourself and sleep well. You can vent to me, though I'm only good at listening, not comforting. (Just know that I'm very worried about you behind the screen.)♡⁠˖
+🫶🏻🩵
+
+⸽ I usually go online on Safe 2, near Spawn. Sometimes I'm on VN server or Safe 1, but I won't stay for long(⁠─⁠.⁠─⁠|⁠|⁠）.
+
+![1000021609](https://github.com/user-attachments/assets/fdeca0ac-8f0e-452d-9b41-e79eb012af41)
+
+# **⸽ Ty for reading, BMF? I only fl my friends sryy (⁠｡⁠•́⁠︿⁠•̀⁠｡⁠)!!!**
+
+
 </div>
