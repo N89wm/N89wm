@@ -20,7 +20,7 @@
 ♡⃝Hi again.
 ⸽ I like black, white n blue.𐔌՞. .՞𐦯
 
-⸽ **─I'm a young artist!(That's all you need to know)! My current fandom/s is UU SMP andd Animal Hospital too! i think?➤ 👀**
+⸽ **─I'm a young artist!(That's all you need to know)! My current fandom is UU SMP➤**
 
 ˙✧˖°📷 ༘ ⋆｡˚
 # Fd I used to be in:˚˖𓍢ִ໋❀
