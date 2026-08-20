@@ -52,7 +52,7 @@
 ⸽ ✦ No, don't ask me about your fav char's quotes; I'll forget about it immediately (⁠╯⁠︵⁠╰⁠,⁠)..✦ ݁˖
 But *then.. Believe in me.*
 <img width="336" height="136" alt="1000021601" src="https://github.com/user-attachments/assets/f6ad37fa-71d9-4d05-beb6-bc3cb9507277" />
-<img src="https://readme-typing-svg.demolab.com?font=Arial&size=36&pause=1000&color=16ACEB&center=true&vCenter=true&width=500&lines=Why+Is+The+Sea+Glowing?">
+<img src="https://readme-typing-svg.demolab.com?font=Arial&size=36&pause=1000&color=16ACEB&center=true&vCenter=true&width=500&lines=Why+Is+The+Sea+Glowing%3F;Happy+Birthday+4c..;I+Wonder+How+Island+2+Is+Doing">
 
 
 
