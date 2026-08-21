@@ -110,4 +110,7 @@ But *then.. Believe in me.*
 ![1000021609](https://github.com/user-attachments/assets/fdeca0ac-8f0e-452d-9b41-e79eb012af41)
 
 # **⸽ Ty for reading, BMF? I only fl my friends sryy (⁠｡⁠•́⁠︿⁠•̀⁠｡⁠)!!!**
+
+<img width="636" height="336" alt="1000021647" src="https://github.com/user-attachments/assets/d7e95ace-fbe2-4c90-af80-744ee559cf85" />
+
 </div>
