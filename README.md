@@ -105,12 +105,12 @@ But *then.. Believe in me.*
 ## ⸽ Love all of my friends, take care of yourself and sleep well. You can vent to me, though I'm only good at listening, not comforting. (Just know that I'm very worried about you behind the screen.)♡⁠˖
 🫶🏻🩵
 
-⸽ I usually online in Safe 2, near Spawn. Sometimes I'm on VN server or Safe 1, but I won't stay for long(⁠─⁠.⁠─⁠|⁠|⁠）.
+⸽ I usually online in Safe 2, near Spawn. Sometimes I'm in VN server or Safe 1, but I won't stay for long(⁠─⁠.⁠─⁠|⁠|⁠）.
 
 ![1000021609](https://github.com/user-attachments/assets/fdeca0ac-8f0e-452d-9b41-e79eb012af41)
 
 # **⸽ Ty for reading, BMF? I only fl my friends sryy (⁠｡⁠•́⁠︿⁠•̀⁠｡⁠)!!!**
 
-<img width="636" height="336" alt="1000021647" src="https://github.com/user-attachments/assets/d7e95ace-fbe2-4c90-af80-744ee559cf85" />
+<img width="736" height="1103" alt="1000021744" src="https://github.com/user-attachments/assets/82ea4ef1-3844-4e7f-9a3d-cf7c43b9b27d" />
 
 </div>
