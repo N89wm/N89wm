@@ -1,6 +1,8 @@
 <div align="center">
 
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
+
+I only speak when spoken to... (sorry to my friends for being so quiet (⁠٥⁠↼⁠_⁠↼⁠)
 <img width="736" height="314" alt="1000021603" src="https://github.com/user-attachments/assets/ec5bc660-222f-47ed-bd36-533a0ad2e7d0" />
 
 
