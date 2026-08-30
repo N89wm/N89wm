@@ -15,11 +15,9 @@ I only speak when spoken to... (sorry to my friends for being so quiet (⁠٥⁠
 <img width="730" height="107" alt="1000021604" src="https://github.com/user-attachments/assets/dd2c4b22-0578-49e0-9c50-e34852c3290b" />
 ------ ≽^•⩊•^≼ ------
 
-⸽ # [![TikTok](https://img.shields.io/badge/TikTok-black?logo=tiktok&logoColor=white)](https://www.tiktok.com/@n89wm)
+⸽ # [![TikTok](https://img.shields.io/badge/TikTok-black?logo=tiktok&logoColor=white)]
 
-(https://www.tiktok.com/@n89wm)
-
-♡⃝Hi again.
+♡⃝Hi again!
 ⸽ I like black, white n blue.𐔌՞. .՞𐦯
 
 ⸽ **─I'm a young artist!(That's all you need to know)! My current fandom is UU SMP➤**
