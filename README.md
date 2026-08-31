@@ -111,6 +111,4 @@ But *then.. Believe in me.*
 
 # **⸽ Ty for reading, BMF? I only fl my friends sryy (⁠｡⁠•́⁠︿⁠•̀⁠｡⁠)!!!**
 
-<img width="736" height="1103" alt="1000021744" src="https://github.com/user-attachments/assets/82ea4ef1-3844-4e7f-9a3d-cf7c43b9b27d" />
-
 </div>
