@@ -71,6 +71,8 @@ But *then.. Believe in me.*
 
 # ⋆˚꩜｡ ?????? (◞ ‸ ◟ㆀ)..👀
 
+     ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
+
 <img width="736" height="490" alt="1000021565" src="https://github.com/user-attachments/assets/729ede84-23a5-49d3-9d3e-f861cbc64b64" />
 
 
@@ -111,4 +113,9 @@ But *then.. Believe in me.*
 
 # **⸽ Ty for reading, BMF? I only fl my friends sryy (⁠｡⁠•́⁠︿⁠•̀⁠｡⁠)!!!**
 
+         へ     ♡   ╱|、
+      ૮  -   ՛ )   (`   -  7
+      /  ⁻  ៸|.     |、 ⁻〵
+    乀 (ˍ, ل ل      じしˍ,)ノ
+ 
 </div>
