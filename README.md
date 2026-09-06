@@ -9,7 +9,7 @@ I only speak when spoken to... (sorry to my friends for being so quiet (⁠٥⁠
 <img src="https://readme-typing-svg.demolab.com?font=Arial&size=36&pause=50&color=9FD8FF&center=true&vCenter=true&width=500&lines=HiHiHi!;Welcome+to+my+GitHub!">
 
 
-## 𐙚I'm N89wm, or you could call me Yuiiz3n6 as well! My friends tend to call me by my old username /aka Yuii ᥬᩤ(⁠≧⁠▽⁠≦⁠)
+## 𐙚I'm N89wm, or you could call me Yuiiz7n4 as well! My friends tend to call me by my old username /aka Yuii ᥬᩤ(⁠≧⁠▽⁠≦⁠)
 ---
 
 <img width="730" height="107" alt="1000021604" src="https://github.com/user-attachments/assets/dd2c4b22-0578-49e0-9c50-e34852c3290b" />
